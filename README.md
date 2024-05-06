@@ -12,4 +12,6 @@ Meu nome é Davi Rafael
 
 @dav1zinn.a
 
+![](https://tenor.com/fDlfBIMbCxK.gif)
+
 ![](https://tenor.com/pt-BR/view/wink-anime-anime-wink-peace-peace-sign-gif-4591493253734534270)
