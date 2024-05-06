@@ -12,4 +12,4 @@ Meu nome é Davi Rafael
 
 @dav1zinn.a
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fthirstymag.com%2FAnime-GIFs-1018999.html&psig=AOvVaw0w-grz1_A7U40aYMSCaHTb&ust=1715079851035000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCOiP6bvw-IUDFQAAAAAdAAAAABAR)
+![](https://tenor.com/pt-BR/view/wink-anime-anime-wink-peace-peace-sign-gif-4591493253734534270)
